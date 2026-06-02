@@ -1,2 +1,2 @@
 # cmgreenuz
-https://github.com/user-attachments/files/28486988/uzAio1.zip
+https://github.com/cm2010301058/cmgreenuz/releases/download/v20260602/uzAio.zip
